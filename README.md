@@ -1,2 +1,0 @@
-# shijie
-THIS IS
